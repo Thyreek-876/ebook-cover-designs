@@ -31,7 +31,7 @@ I specialize in crafting eye-catching eBook covers tailored to authors and entre
 ## 📂 How to View
 
 Visit my online portfolio to see all eBook cover samples:  
-🔗 (https://smithstudiodesigns.my.canva.site)
+🔗 https://smithstudiodesigns.my.canva.site
 
 ---
 
